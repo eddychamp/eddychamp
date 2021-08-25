@@ -10,3 +10,4 @@
 - Aprendi a gostar de cahorros por causa da Bella, uma Shit Zsu 
 - Adoro codar
 - Meu hobby favorito é jogar futebol
+- Gosto de cozinhar
